@@ -1,0 +1,2 @@
+# Ushtrime
+Ushtrime- detyra- projekte
